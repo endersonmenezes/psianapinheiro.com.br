@@ -1,4 +1,4 @@
-# Psicologa Ana Júlia Pinheiro
+# Psicologa Ana Júlia Pinheiro - CRP/PR 08/41176
 
 **Site em desenvolvimento**
 
